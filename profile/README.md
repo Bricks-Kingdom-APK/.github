@@ -48,4 +48,4 @@ Bricks Kingdom 1.0.7 Mod APK is perfect for players who want to experience the f
 
 ## 🏆 Final Thoughts 🏆
 
-Bricks Kingdom 1.0.7 APK Mod (Unlimited Gifts) offers a fun, stress-free experience for puzzle lovers. With enhanced features, unlimited resources, and a vibrant design, this modded version provides hours of enjoyable gameplay. Whether you’re new to puzzle games or a seasoned player, Bricks Kingdom will keep you engaged with its colorful levels and strategic challenges. Download today and step into the world of Bricks Kingdom, where each level brings a new puzzle to conquer!
+[Bricks Kingdom](https://github.com/Bricks-Kingdom-APK) 1.0.7 APK Mod (Unlimited Gifts) offers a fun, stress-free experience for puzzle lovers. With enhanced features, unlimited resources, and a vibrant design, this modded version provides hours of enjoyable gameplay. Whether you’re new to puzzle games or a seasoned player, Bricks Kingdom will keep you engaged with its colorful levels and strategic challenges. Download today and step into the world of Bricks Kingdom, where each level brings a new puzzle to conquer!
