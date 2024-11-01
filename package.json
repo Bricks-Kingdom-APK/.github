@@ -1,0 +1,12 @@
+{
+  "name": "Bricks Kingdom 1.0.7 Mod APK",
+  "version": "1.0.0",
+  "description": "Bricks Kingdom 1.0.7 Mod APK Download For Android.",
+  "main": "index.js",
+  "scripts": {
+    "start": "open index.html"
+  },
+  "author": "Your Name",
+  "license": "MIT",
+  "dependencies": {}
+}
